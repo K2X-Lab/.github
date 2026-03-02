@@ -12,4 +12,4 @@ If you are curious or want to follow along, you are welcome here. When we have s
 
 We are looking forward to this journey.
 
-Made with hope in Pune, Maharashtra.
+Made with ♥ and hope in Pune, Maharashtra.
